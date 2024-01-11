@@ -1,4 +1,4 @@
-# James
+# James Wesley Hill
 
 <img src="https://raybo.org/tfit-feed/images/artwork.jpg" width="250">
 
